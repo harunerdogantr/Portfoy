@@ -1,1 +1,0 @@
-https://www.figma.com/proto/Sd3wESejffgOujzYJezweo/APP?page-id=0%3A1&type=design&node-id=206-2&viewport=800%2C349%2C0.06&t=fxbjKbukm8oUyCNA-1&scaling=scale-down&mode=design
